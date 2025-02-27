@@ -1,1 +1,1 @@
-## A New Of Reaching Out To Companies Through Company Connector
+## A New Way Of Reaching Out To Companies Through Company Connector
